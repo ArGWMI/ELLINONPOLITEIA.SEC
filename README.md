@@ -1,0 +1,2 @@
+# ELLINONPOLITEIA.SEC
+Think Tank - European Parliament (TR) (Ε.Ε.Α.) - GERMANY:Branch (26/07/2012): Greece Annexes E.D.GOUTOS S.A (1998). Attika > Athens - Peloponnese > Porto Heli > Non-marketable assets (credit claims) (ASSETS - GREEK DEBT RIGHTS) Trademark 11-10-11: accounting concept monetary 'ELLINON POLITEIA' TMDB > G:Bid Amount: 82601.57 mn US dollar collateralised operations Type of eligible assets held Government Securities..  https://corporatefinanceinstitute.com/resources/knowledge/finance/revolver-debt/
